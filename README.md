@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Manas777-gif
 - 👀 I’m interested in Web dev,App dev,AI,ML,learning😄
 - 🌱 I’m currently learning WWeb dev for the first time
-- 💞️ I’m looking to collaborate on all the aboe topics 
+- 💞️ I’m looking to collaborate on all the above topics 
 - 📫 How to reach me DM
 - ⚡ Fun fact: Money is overrated
 
